@@ -1,7 +1,7 @@
 - 👋 Hii!, I’m @Almeidazia
 - 👀 I’m interested in ...fazer meu projeto e explorar
 - 🌱 I’m currently learning ...
-- 💞️ I’m looking to collaborate on ...comigo
+- 💞️ I’m looking to collaborate on ...não 
 - 📫 How to reach me ...Não 
 - 😄 Pronouns: ...Eu
 - ⚡ Fun fact: ...☠️
